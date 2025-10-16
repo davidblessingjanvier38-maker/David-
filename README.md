@@ -1,2 +1,2 @@
 # David blessing Janvier 
-I want to get many Followers 
+I want many followers.
